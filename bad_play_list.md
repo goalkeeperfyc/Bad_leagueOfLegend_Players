@@ -1,6 +1,7 @@
 # Season 2022
 PSZ FanBoy: It's the first 10 game of the season and he play shit (split all the game) when we are in advance<br>
-
+TheDocWillSeeYou: Kept crying and wanted jug to 24/7 babysit him as a shen<br>
+RUShakenYet: Cried for enemy jug ganked him when he was extreme low as a ekko<br>
 
 # Season 2021
 player_name<br>
