@@ -2,6 +2,10 @@
 PSZ FanBoy: It's the first 10 game of the season and he play shit (split all the game) when we are in advance<br>
 TheDocWillSeeYou: Kept crying and wanted jug to 24/7 babysit him as a shen<br>
 RUShakenYet: Cried for enemy jug ganked him when he was extreme low as a ekko<br>
+sigh on me: int by sion sup. No mom player<br>
+IILUSION: pick yasuo again sylas and ended with 2-10-2 vs 20-1-3<br>
+Strontak: trash lillia jug player<br>
+
 
 # Season 2021
 player_name<br>
