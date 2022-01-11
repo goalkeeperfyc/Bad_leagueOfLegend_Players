@@ -5,7 +5,7 @@ RUShakenYet: Cried for enemy jug ganked him when he was extreme low as a ekko<br
 sigh on me: int by sion sup. No mom player<br>
 IILUSION: pick yasuo again sylas and ended with 2-10-2 vs 20-1-3<br>
 Strontak: trash lillia jug player<br>
-
+Snowblade: int jax. Keep engaging in a wrong way<br>
 
 # Season 2021
 player_name<br>
