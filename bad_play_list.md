@@ -8,6 +8,7 @@ Strontak: trash lillia jug player<br>
 Snowblade: int jax. Keep engaging in a wrong way<br>
 can i mid: AFK<br>
 Ninjacavemann: Got fed and then threw as a vayne<br>
+SimpSlayingPig: brain dead bliz, even don't know how to bait<br>
 
 # Season 2021
 player_name<br>
