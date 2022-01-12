@@ -11,7 +11,8 @@ Ninjacavemann: Got fed and then threw as a vayne<br>
 SimpSlayingPig: brain dead bliz, even don't know how to bait<br>
 kibrit: bad mid<br>
 BabiesRabies123: Couldn't even take one drake<br>
-Scrub in a shrub
+Scrub in a shrub: sivir mid and fed<br>
+The Bláck: xin zhao jug and getted gap. AFK
 
 # Season 2021
 player_name<br>
