@@ -14,6 +14,7 @@ BabiesRabies123: Couldn't even take one drake<br>
 Scrub in a shrub: sivir mid and fed<br>
 The Bláck: xin zhao jug and getted gap. AFK<br>
 Patte de chaise: trash jug, keep crying<br>
+Brittanyloveu： mental illness <br>
 
 # Season 2021
 player_name<br>
