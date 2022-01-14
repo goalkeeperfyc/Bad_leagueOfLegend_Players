@@ -15,6 +15,7 @@ Scrub in a shrub: sivir mid and fed<br>
 The Bláck: xin zhao jug and getted gap. AFK<br>
 Patte de chaise: trash jug, keep crying<br>
 Brittanyloveu： mental illness <br>
+allUGHver: stupid jinx player and AFK at the last fight<br>
 
 # Season 2021
 player_name<br>
