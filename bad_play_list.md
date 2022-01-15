@@ -17,7 +17,8 @@ Patte de chaise: trash jug, keep crying<br>
 Brittanyloveu： mental illness <br>
 allUGHver: stupid jinx player and AFK at the last fight<br>
 LanceplaysLoL: bad lux sup<br>
-Haydaddy: bad mid player, mental issue
+Haydaddy: bad mid player, mental issue<br>
+I hate egg: worst diana, threw the game
 
 # Season 2021
 player_name<br>
