@@ -21,6 +21,7 @@ Haydaddy: bad mid player, mental issue<br>
 I hate egg: worst diana, threw the game<br>
 Rikk: bad mid<br>
 Orbît: braindead thresh, keep getting caught<br>
+DTi: bad mid<br>
 
 # Season 2021
 player_name<br>
