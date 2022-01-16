@@ -22,6 +22,8 @@ I hate egg: worst diana, threw the game<br>
 Rikk: bad mid<br>
 Orbît: braindead thresh, keep getting caught<br>
 DTi: bad mid<br>
+MONSTERMID99: bad jug<br>
+ISM Perry: braindead trist, got engaged by a wukong every time<br>
 
 # Season 2021
 player_name<br>
