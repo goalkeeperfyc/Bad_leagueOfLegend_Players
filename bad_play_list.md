@@ -20,6 +20,7 @@ LanceplaysLoL: bad lux sup<br>
 Haydaddy: bad mid player, mental issue<br>
 I hate egg: worst diana, threw the game<br>
 Rikk: bad mid<br>
+Orbît: braindead thresh, keep getting caught<br>
 
 # Season 2021
 player_name<br>
