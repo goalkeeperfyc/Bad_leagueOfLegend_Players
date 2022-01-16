@@ -24,6 +24,7 @@ Orbît: braindead thresh, keep getting caught<br>
 DTi: bad mid<br>
 MONSTERMID99: bad jug<br>
 ISM Perry: braindead trist, got engaged by a wukong every time<br>
+totoseeko1: 0-10 ad<br>
 
 # Season 2021
 player_name<br>
