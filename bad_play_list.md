@@ -34,6 +34,8 @@ Iegend dairy: bad ad. No skill for matching the lane (when Karma missed her RQ a
 Peacemaker BBwei: braindead sup<br>
 Allenio: bad mid<br>
 Zadro: bad jug<br>
+you miss me: bad jinx<br>
+Elyseum: bad sup<br>
 
 # Season 2021
 player_name<br>
