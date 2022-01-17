@@ -31,6 +31,9 @@ Ss7LeBlanc: bad mid<br>
 GoldenJoystick20: d4 sylas sup<br>
 Bismillah: bad top lane<br>
 Iegend dairy: bad ad. No skill for matching the lane (when Karma missed her RQ at level 1, he just sitted there and auto the wave). The sup is a Nami with W ready<br>
+Peacemaker BBwei: braindead sup<br>
+Allenio: bad mid<br>
+Zadro: bad jug<br>
 
 # Season 2021
 player_name<br>
