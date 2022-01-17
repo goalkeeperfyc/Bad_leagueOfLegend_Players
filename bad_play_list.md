@@ -26,7 +26,8 @@ MONSTERMID99: bad jug<br>
 ISM Perry: braindead trist, got engaged by a wukong every time<br>
 totoseeko1: 0-10 ad<br>
 Juket: practice champ in rank <br>
-Envoki: bad sup, keep getting caught and crying
+Envoki: bad sup, keep getting caught and crying<br>
+Ss7LeBlanc: bad mid
 
 # Season 2021
 player_name<br>
