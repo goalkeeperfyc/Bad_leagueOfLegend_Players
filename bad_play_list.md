@@ -36,6 +36,8 @@ Allenio: bad mid<br>
 Zadro: bad jug<br>
 you miss me: bad jinx<br>
 Elyseum: bad sup<br>
+pb cake: bad ad <br>
+Zhujiao: bad mid
 
 # Season 2021
 player_name<br>
@@ -50,3 +52,4 @@ Fluffie McP: Lost as a camille vs wukong, and AFK afterwards;4160530417<br>
 AKM Zealot: inting bot lane (SUP);4161636424<br>
 apdo44: toxic player. I gave up the tower due to the enemy jug dropped the herald top, he kept blaming my decision when we were 19:6 ahead<br>
 Hey Youre Stinky: We had huge lead. All this sup did is to surrender. No call, no ping, only surrender.<br>
+
