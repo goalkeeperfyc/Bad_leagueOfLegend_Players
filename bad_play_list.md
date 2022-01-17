@@ -27,7 +27,9 @@ ISM Perry: braindead trist, got engaged by a wukong every time<br>
 totoseeko1: 0-10 ad<br>
 Juket: practice champ in rank <br>
 Envoki: bad sup, keep getting caught and crying<br>
-Ss7LeBlanc: bad mid
+Ss7LeBlanc: bad mid<br>
+GoldenJoystick20: d4 sylas sup<br>
+Bismillah: bad top lane<br>
 
 # Season 2021
 player_name<br>
