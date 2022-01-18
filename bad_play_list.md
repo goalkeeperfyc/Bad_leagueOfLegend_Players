@@ -41,7 +41,7 @@ Zhujiao: bad mid <br>
 maohaohaohao: bad mid<br>
 Kuang Xi Lim: bad mid<br>
 kxpwfy: bad jug<br>
-
+Ninety: bad mid<br>
 
 # Season 2021
 player_name<br>
