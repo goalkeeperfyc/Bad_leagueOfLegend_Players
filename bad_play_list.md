@@ -37,7 +37,11 @@ Zadro: bad jug<br>
 you miss me: bad jinx<br>
 Elyseum: bad sup<br>
 pb cake: bad ad <br>
-Zhujiao: bad mid
+Zhujiao: bad mid <br>
+maohaohaohao: bad mid<br>
+Kuang Xi Lim: bad mid<br>
+kxpwfy: bad jug<br>
+
 
 # Season 2021
 player_name<br>
