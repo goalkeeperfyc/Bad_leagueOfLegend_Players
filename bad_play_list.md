@@ -42,6 +42,9 @@ maohaohaohao: bad mid<br>
 Kuang Xi Lim: bad mid<br>
 kxpwfy: bad jug<br>
 Ninety: bad mid<br>
+raoven<br>
+YourAdog81<br>
+AnnieOnGaseo<br>
 
 # Season 2021
 player_name<br>
