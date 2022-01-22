@@ -52,6 +52,9 @@ vSmL<br>
 BI ZUI WO C<br>
 u make me feel<br>
 GOD X CLUTCH X<br>
+I play 4 Daddy<br>
+Triumphant MF<br>
+Zer0Love<br>
 
 # Season 2021
 player_name<br>
