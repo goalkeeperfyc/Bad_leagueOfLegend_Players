@@ -47,6 +47,8 @@ YourAdog81<br>
 AnnieOnGaseo<br>
 Plusle: trash ezreal<br>
 Scream Benihime: bad jug<br>
+Anivia Bird Only<br>
+vSmL<br>
 
 # Season 2021
 player_name<br>
