@@ -59,6 +59,7 @@ ad30<br>
 CarryTrigger<br>
 Gïmbap<br>
 San E<br>
+cbbmid: no brain. I recalled to avoid a dive on top side (i was 0-2 behind), but he still went top and dead. 
 
 # Season 2021
 player_name<br>
