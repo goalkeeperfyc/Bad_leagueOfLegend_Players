@@ -55,6 +55,10 @@ GOD X CLUTCH X<br>
 I play 4 Daddy<br>
 Triumphant MF<br>
 Zer0Love<br>
+ad30<br>
+CarryTrigger<br>
+Gïmbap<br>
+San E<br>
 
 # Season 2021
 player_name<br>
