@@ -63,6 +63,7 @@ cbbmid: no brain. I recalled to avoid a dive on top side (i was 0-2 behind), but
 Eye Glazer<br>
 Jg God: no brain<br>
 Lets Do Science<br>
+Turn to page 394: took all the kills and wave but AFK when jug took her red and he was dead<br>
 
 # Season 2021
 player_name<br>
