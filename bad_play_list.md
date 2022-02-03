@@ -64,6 +64,8 @@ Eye Glazer<br>
 Jg God: no brain<br>
 Lets Do Science<br>
 Turn to page 394: took all the kills and wave but AFK when jug took her red and he was dead<br>
+Kim Chae Min<br>
+Swang My wang<br>
 
 # Season 2021
 player_name<br>
