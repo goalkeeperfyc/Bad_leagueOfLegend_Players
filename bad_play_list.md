@@ -67,9 +67,11 @@ Turn to page 394: took all the kills and wave but AFK when jug took her red and 
 Kim Chae Min<br>
 Swang My wang<br>
 YMB<br>
-asylums<br>
+asylums: twice in a row. Can't win 2 v 1 bot<br>
 Shaii<br>
 humbah jumbah<br>
+steven1009<br>
+
 
 # Season 2021
 player_name<br>
