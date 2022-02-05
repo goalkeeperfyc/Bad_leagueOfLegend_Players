@@ -66,6 +66,10 @@ Lets Do Science<br>
 Turn to page 394: took all the kills and wave but AFK when jug took her red and he was dead<br>
 Kim Chae Min<br>
 Swang My wang<br>
+YMB<br>
+asylums<br>
+Shaii<br>
+humbah jumbah<br>
 
 # Season 2021
 player_name<br>
