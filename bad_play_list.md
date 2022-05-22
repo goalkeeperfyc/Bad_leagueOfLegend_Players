@@ -72,6 +72,7 @@ Shaii<br>
 humbah jumbah<br>
 steven1009<br>
 xxShadowLadyxx<br>
+Zohyah: Bad jugler, I solo won 1 v 2 at level 3 when nunu ganked me (killed both nunu and cam and stayed alive) and he couldn't do anything to snowball
 
 
 # Season 2021
